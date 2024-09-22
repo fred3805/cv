@@ -3,7 +3,9 @@
 # cv
 ## photo de profil
 
-# (https://www.facebook.com/photo.php?fbid=6167753466567930&set=pb.100000000141698.-2207520000&type=3)
+#(![_moi - Copie](https://github.com/user-attachments/assets/0dbbb5b5-af62-47a8-a266-4d9009598f5d)
+)
+
 ## 🚀 About Me
 
 ## je me présente, je m'appelle jollant freddy et je vie à wattignies
